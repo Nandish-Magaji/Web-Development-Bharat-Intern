@@ -1,7 +1,7 @@
 🧑🏻‍💻
 Hello There! 👋🏻
 
-🌟Important** This is _free_ to use for _Educational Purposes!_✅
+🌟 **Important** This is _free_ to use for _Educational Purposes!_✅
 
 🚨Internship organised by --> ***@Bharat-Intern***
 
