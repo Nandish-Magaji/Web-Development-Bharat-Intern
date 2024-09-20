@@ -1,6 +1,5 @@
 🧑🏻‍💻
-Hello There! 👋🏻 
-Just _basic web pages!_
+Hello There! 👋🏻
 
 🌟Important** This is _free_ to use for _Educational Purposes!_✅
 
